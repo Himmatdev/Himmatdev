@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Himmatdev
 - 👀 I’m interested in crypto
 - 🌱 I’m currently learning web dev...
-- 💞️ I’m looking to collaborate on google
+- 💞️ I’m looking - collaborate on google
 - 📫 How to reach me - insta -hs_rajput_2006
 - 😄 Pronouns: ...
 - ⚡ Fun fact: i am only 17 year old
