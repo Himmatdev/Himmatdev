@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Himmatdev
+- 👋 Hi, I’m @Himmatsingh
 - 📫 How to reach me - insta -hs_rajput_2006
 - 😄 Pronouns: ...
 
